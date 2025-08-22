@@ -3,8 +3,6 @@
 
 - 📫 How to reach me **mnsmandaliya02@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1JIJdQdbYNatsMcwvUFIuqeRmUUhIXscj/view?usp=drive_link](https://drive.google.com/file/d/1JIJdQdbYNatsMcwvUFIuqeRmUUhIXscj/view?usp=drive_link)
-
 - ⚡ Fun fact **I'm very approachable and super fun to work with**
 
 <h3 align="left">Connect with me:</h3>
